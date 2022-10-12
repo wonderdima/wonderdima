@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Dima
+- 👀 I work at Bolt
